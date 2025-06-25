@@ -33,7 +33,7 @@
 
 ![Illuvium Overworld](https://images.ctfassets.net/1n1p3fu0ybdf/1AX3cSGgEzY8yiFkCyY8lP/e089e1ff74120534b8f4aecf09ad3d89/73cb9e3d-c3f3-49c5-b642-e3c3cab33a5c.jpg) 
 
-![Illuvium Overworld](https://playtoearn.com/wp-content/uploads/2022/12/image-20-12-1024x576.jpg)  
+![Illuvium Overworld1](https://playtoearn.com/wp-content/uploads/2022/12/image-20-12-1024x576.jpg)  
 
 ---
 

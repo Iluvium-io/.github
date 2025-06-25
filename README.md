@@ -29,7 +29,7 @@
 
 ## 🖼 Preview
 
-![Illuvium Arena Gameplay](https://images.ctfassets.net/1n1p3fu0ybdf/5Io84cTnyg1TB1KCpMIYRJ/adbe7ab7153146f24fe75c6871a02727/Illuvium_Zero_--_Brightland_Steppes__1___1_.png)  
+![Illuvium Arena Gameplay](https://i.ytimg.com/vi/mzT88eN4gts/maxresdefault.jpg)  
 
 ![Illuvium Overworld](https://nftplazas.com/wp-content/uploads/2024/07/illuvium-zero.png)  
 
